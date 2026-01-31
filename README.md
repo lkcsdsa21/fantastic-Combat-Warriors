@@ -2,7 +2,7 @@
 
 [![Combat Warriors Script 2025 Banner](https://i.postimg.cc/brL14xX8/11.jpg)](https://postimg.cc/gLXwZ6kB)
 
-# Combat Warriors Script 2025 | Kill Aura Aimbot ESP Infinite Stamina Speed Fly God Mode Unlock All Weapons Skins | Combat Warriors Script Undetected December 2025 ⚔️
+# Combat Warriors Script 2026 | Kill Aura Aimbot ESP Infinite Stamina Speed Fly God Mode Unlock All Weapons Skins | Combat Warriors Script Undetected December 2026 ⚔️
 
 ![Version](https://img.shields.io/badge/Version-2025.12.20-FF0000?style=for-the-badge&logo=roblox&logoColor=white)
 ![Status](https://img.shields.io/badge/Status-UNDETECTED%20100%25-success?style=for-the-badge)
